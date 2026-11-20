@@ -1,1 +1,1 @@
-# Diana-Zaichuk
+# Diana Zaichuk
